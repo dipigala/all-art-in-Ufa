@@ -1,3 +1,3 @@
-# dipigala your agent in Ufa
-  the agent of collectors of contemporary art
-  https://sites.google.com/site/agentkollekcionerov/glavnaa/vdekabre
+# дипигала - ваш агент в г. Уфа
+агент коллекционеров современного нам искусства
+https://sites.google.com/site/agentkollekcionerov/glavnaa/vdekabre
